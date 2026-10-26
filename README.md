@@ -222,4 +222,4 @@ Game of Thrones: The 8 Bit Game is available as a full free version with all fea
 Don't miss out on the chance to relive the magic of Westeros! Download Game of Thrones: The 8 Bit Game now and embark on your adventure today!
 
 ---
-**Last updated:** 2026-10-25 22:58:54 UTC
+**Last updated:** 2026-10-26 01:03:25 UTC
